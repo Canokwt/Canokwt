@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Canokwt
  I’m interested in ..web3 Wallet.
--  I’m currently learning .web3 wallet address..
--  I’m looking to collaborate on ...I make scammers close their wallets
+-  I’m currently learning .web3.
+-  I’m looking to collaborate on ...
 - 📫 How to reach me mail:cankck04@gmail.com ...
   
 
